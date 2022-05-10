@@ -1,0 +1,5 @@
+- 👋 Hi, I’m **Paloma Dos Anjos**
+- 👀 **I’m interested in learining more**
+- 🌱 **I’m currently in my freshman  year of higt school!**
+- 💞️**I’m looking to collaborate on ...**
+- 📫 **How to reach me ...**
